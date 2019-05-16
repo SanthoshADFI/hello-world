@@ -12,3 +12,7 @@ nmbfjfne/v iefnwfw][f wfi'fm wfwfgwoifjw fw kwf;lwmfl/jq[F   8WUYF' WJKGFLQNbfk 
  \ `svsfu'wiN W;F Hw/fmw.KJF'af 
 wfIAEWFH;LQ GK/GF;azv ajanwf˜µaw gqg/jm V,mg 
 snvka a,.wem klan f wf wfg plqg aegeig  30io  2n 
+kjdfldwjfwf'lw c
+wmcwbcl;wlc;'lwCs /km  cw
+njc;wk;lq;wdlnd, qdqqdnbqjdq d
+qndlkq;ldk;lqdwkqwdqd qlklkqdnqwd
